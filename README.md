@@ -142,15 +142,6 @@ Community contributions keep this mod pack alive 💪
 
 ## Keywords
 
-resident evil requiem remake fps boost, re requiem remake mod pack 2026,
-re requiem performance mods, resident evil requiem stutter fix,
-re requiem remake ray tracing fix, re requiem best mods nexus,
-resident evil requiem remake optimization, re requiem shader stutter fix,
-re requiem vram fix, re engine fps boost, resident evil requiem remake tweaks,
-re requiem input lag fix, re requiem remake low fps fix, best settings re requiem remake 2026,
-resident evil requiem remake pc optimization, re requiem remake rt performance,
-re requiem remake nexus mods, resident evil requiem mod pack
-
 
 ## 📜 License
 
