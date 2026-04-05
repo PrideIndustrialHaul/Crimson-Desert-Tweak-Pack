@@ -141,7 +141,16 @@ Community contributions keep this mod pack alive 💪
 ---
 
 ## Keywords
-
+crimson desert fps boost, crimson desert mod pack 2026,
+crimson desert performance mods, crimson desert stutter fix,
+crimson desert best mods, crimson desert nexus mods,
+crimson desert optimization, crimson desert tweaks,
+crimson desert low fps fix, crimson desert input lag,
+crimson desert best settings 2026, crimson desert draw distance,
+crimson desert vram fix, crimson desert pc optimization,
+crimson desert hud mod, crimson desert minimap mod,
+crimson desert visual mods, crimson desert lod fix,
+crimson desert engine tweaks, pearl abyss mod pack
 
 ## 📜 License
 
