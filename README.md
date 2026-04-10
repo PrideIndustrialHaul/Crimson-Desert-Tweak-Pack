@@ -1,4 +1,4 @@
-# 🔥🔥 Crimson Desert Ultimate Mod Pack 2026 — FPS Boost, Tweaks & Enhancements
+# 🔥🔥🔥 Crimson Desert Ultimate Mod Pack 2026 — FPS Boost, Tweaks & Enhancements
 
 [![GitHub Stars](https://img.shields.io/github/stars/Alexantros341/Crimson-Desert-Ultimate-ModPack)](https://github.com/Alexantros341/Crimson-Desert-Ultimate-ModPack)
 [![License: MIT](https://img.shields.io/badge/License-MIT-green.svg)](https://opensource.org/licenses/MIT)
